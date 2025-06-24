@@ -1,4 +1,4 @@
-- 👋 Hiiii, I’m @bri244
+- 👋 Hiiii, I’m @briw24
 - 🫠 I’m interested in ...trying things out lol.
 - Some hobbies include puzzles, escape rooms, crocheting, baking...
 - 💖 Pronouns: she/her
